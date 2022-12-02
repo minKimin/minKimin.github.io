@@ -1,1 +1,0 @@
-# minKimin.github.io
