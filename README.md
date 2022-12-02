@@ -1,1 +1,1 @@
-# Blog page
+# minKimin.github.io
